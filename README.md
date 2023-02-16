@@ -5,7 +5,7 @@
 - 📫 You can reach me through my mail, Whatsapp, Facebook, linkldn...
 -  My mail mabbas786official@gmail.com
 -  My Whatsapp - +923450715686
--  My Linkldn id - https://www.linkedin.com/in/android-developer-here/
+-  My Linkldn id - [https://www.linkedin.com/in/android-developer-here/](https://www.linkedin.com/in/muhammadabbas-android/)
 
 
 <!---
