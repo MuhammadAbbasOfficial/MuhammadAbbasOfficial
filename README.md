@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Android...
 - 📫 You can reach me through my mail, Whatsapp, Facebook, linkldn...
 -  My mail mabbas786official@gmail.com
--  My Whatsapp - +923450715686
+-  My Whatsapp - [+923450715686](https://wa.me/+923450715686?text=)
 -  My Linkldn id - [https://www.linkedin.com/in/muhammadabbas-android/](https://www.linkedin.com/in/muhammad-abbas-android-developer-software-engineer/)
 
 
